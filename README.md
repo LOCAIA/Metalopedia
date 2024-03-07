@@ -1,0 +1,2 @@
+# Metalopedia
+Encyclopédie du metal
